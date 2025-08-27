@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱I'm currently in final year of diploma in CS<br>👯I would to like to collaborate with others<br>🔭I'm currently learning Web dev and DSA<br>💬Ask me anything feel free to ask me<br>⚡I'm a good coder and developer
+🌱I'm currently in second year of BTech in IT<br>👯I would to like to collaborate with others<br>🔭I'm currently learning Web dev and DSA<br>💬Ask me anything feel free to ask me<br>⚡I'm a good coder and developer
 
 
 ## 🌐 Socials:
